@@ -5,7 +5,7 @@
    <details>
     <summary><ins>INFO</ins> Click to expand</summary>
       <b>interests n more on rentry #Sorry</b> <br>     
-    I do ocxccs with a few characters, but at the moment I talk about Ogata Hyakunosuke a lot. I WANT THAT PARANOID SCHIZOID BOY ! <br><b>For Pony town~~</b>, do not be afraid to int, I'm quiet at first, but will open up eventually. my pt style is inconsistent as fuck. I get bored of just keeping one. Mood swings + I have terrible memory, I tend to forget important details. my health is not the best so be patient with me.m..I'm getting therapyok. my right eye is also fucked so I MIGHT read stuff wrong or type like shit when tired. tickles uoy. ￬￬￬this me
+    I do ocxccs with a few characters, but at the moment I talk about Ogata Hyakunosuke a lot. I WANT THAT PARANOID SCHIZOID BOY ! <br><b>For Pony town~~</b>, do not be afraid to int, I'm quiet at first, but will open up eventually. my pt style is inconsistent as fuck!!I get bored of just keeping one. Mood swings + terrible memory, I tend to forget important details. my health is not the best so be patient with me.m..I'm getting therapyok. my right eye is also fucked so I MIGHT read stuff wrong or type like shit when tired. tickles uoy. ￬￬￬this me
       <p align="center">      <img width="35%" src="https://file.garden/Z4_uMXj5okOfzfmz/20260616_151754.jpg"><br> </p> 
   </details>
   
